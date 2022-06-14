@@ -1,6 +1,7 @@
-### Hi there, I'm Diana and an electronic engineering student at Santo Tomas University. 👩🏻‍💻
+### Hi there, I'm Diana and a tech women a year ago. 👩🏻‍💻
 
 - 🎮 I’m freelance on Kuepa as game developer
+- 🏢 I'm electronic engineering student at Santo Tomas University
 - 💚 I’m currently learning on Platzi
 
 
