@@ -1,4 +1,4 @@
-### Hi there, I'm Diana and a tech women a year ago. 👩🏻‍💻
+### Hi there, I'm Diana and a tech women. 👩🏻‍💻
 
 - 🎮 I’m freelance on Kuepa as game developer
 - 🏢 I'm electronic engineering student at Santo Tomas University
